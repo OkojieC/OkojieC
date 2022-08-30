@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OkojieC
 - 👀 I’m interested in food, climbing, netflix. 
-- 🌱 I’m currently learning the Solidity Language for Etherum smart contracts 
+- 🌱 Everything investments, crypto, blockchain and a bit of NFT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
